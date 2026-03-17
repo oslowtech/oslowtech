@@ -56,4 +56,4 @@ Currently preparing to launch a **robotics & automation solutions startup**.
 
 ## 📫 Connect
 
-*(Add your links here)*  
+*https://www.linkedin.com/in/pranjal-giri-057758260/*  
