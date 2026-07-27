@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Pranjal Giri
 
-🚀 2nd Year Engineering Student  
+🚀 3rd Year Engineering Student  
 🤖 Robotics & Embedded Systems Enthusiast  
 🏆 Bronze Medalist - International Competition (Singapore)
 
